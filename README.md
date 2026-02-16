@@ -1,6 +1,6 @@
-# 👋 QA Portfolio — Rajaofera Tiana
+# 👋 QUALITY ASSURANCE ENGINEER — Rajaofera Tiana
 
-**Quality Assurance Analyst | 3+ Years Experience | Fredericksburg, VA**
+**Quality Assurance Analyst & Engineer | 3+ Years Experience | Fredericksburg, VA**
 
 📧 rajaoferas.tiana@gmail.com | 📍 Remote-Ready | 🇺🇸 US Permanent Resident
 
