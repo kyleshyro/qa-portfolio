@@ -2,8 +2,7 @@
 
 **Quality Assurance Analyst & Engineer | 3+ Years Experience | Fredericksburg, VA**
 
-📧 rajaoferas.tiana@gmail.com | 📍 Remote-Ready | 🇺🇸 US Permanent Resident
-
+📧 rajaoferas.tiana@gmail.com | 📍 Remote-Ready |
 ---
 
 ## 🎯 About Me
